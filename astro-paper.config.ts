@@ -9,7 +9,7 @@ export default defineAstroPaperConfig({
     profile: "",
     ogImage: "",
     lang: "en-ie",
-    timezone: "Europe/Ireland",
+    timezone: "Europe/Dublin",
     dir: "ltr",
   },
   posts: {
