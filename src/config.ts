@@ -25,6 +25,7 @@ const config: ResolvedAstroPaperConfig = {
     perIndex: userConfig.posts?.perIndex ?? 4,
     scheduledPostMargin:
       userConfig.posts?.scheduledPostMargin ?? 15 * 60 * 1000,
+	entries: "./",
   },
   features: {
     lightAndDarkMode: userConfig.features?.lightAndDarkMode ?? true,
