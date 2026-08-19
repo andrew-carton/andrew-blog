@@ -8,7 +8,7 @@ export default defineAstroPaperConfig({
     author: "andrew",
     profile: "",
     ogImage: "",
-    lang: "en-ie",
+    lang: "en-IE",
     timezone: "Europe/Dublin",
     dir: "ltr",
   },
