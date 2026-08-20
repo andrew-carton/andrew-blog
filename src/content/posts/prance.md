@@ -1,3 +1,4 @@
+---
 title: A prance
 description: A reworking prance
 pubDatetime: 2026-08-20
