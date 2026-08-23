@@ -1,7 +1,7 @@
 ---
 title: The inner guide
 date: 2026-08-23
-pubdatetime: 2026-08-23T17:30:02+01:00
+pubDatetime: 2026-08-23T17:30:02+01:00
 ---
 The inner guide
 
