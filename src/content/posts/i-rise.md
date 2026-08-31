@@ -1,5 +1,5 @@
 ---
-title: I rise
+title: I rise yet...
 description: I rise
 pubDatetime: 2026-08-31
 pubDatetime: 2026-08-31
