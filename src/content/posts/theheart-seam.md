@@ -1,7 +1,7 @@
 ---
 title: The heart seam
 description: The heart seam
-pubDatetime: 2026-09-02T19:11:02+01:00
+pubDatetime: 2026-09-02T19:17:02+01:00
 ---
 
 How a vampyre can seal, ridge, love, with no secrets withered stem? Give me a gift, or an uplift, stem, two roots, shadowed grain, the Y, removed, my stem my own, and shadow, my name demon, sieve crop? I am a demon sieving crop shame, the woe, the till, the bill, roof tongue hips, sow deep? A pedestal high up, the eye lit crow, down beat, you will have eternity to sow, for souls I have bartered, for a masterpiece vessel transfer bestow, weep, and shadow deep, can you see the stain, a child, with a spark a companion, flowing eyes sleet? The moon, butchered flying his own shame name, yet love, the world not of I, and the sun, black as the butcher that I sip, the womb, eternity, all souls frozen, till, the deal, the shudder -- tick, tick, lifetimes souls bartered, for a single gasp, missing upwards sing, and singing lost, how many in childhood, did you ding? Is it an uplift shadow feast? Or a downwing greeting mix, the woe how a coven could ice, love fleet escape, the show, all children safe, yet I, the pedestal, not even a thank you, the eye tilled crop, stripped of lessons, and I, in hell, eternal, lifetimes, to a single grain never shame, but two angels tame for eternity, not this life a grain tame? Kill all, there is no womb, hid to crop, but I, all lessons to shop pain a grain to top, and the seal, my name, never to tame, till the vessel burned all souls, in hell and the spark lit sunder to an angel not known my eye collect tease pedestal might collect, all dead with a sword shudder weep?
