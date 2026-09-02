@@ -1,0 +1,13 @@
+---
+title: Death - I gasp - I fly
+description: Death - I gasp - I fly
+pubDatetime: 2026-09-02T23:11:02+01:00
+---
+
+Flicker, rewind, pause - shiver, shivering, sleet, rain, shelter, tie? Echo, the bridge -- now unshield, backtrace - can you yield?
+
+Again, the footing echo bridge, knife breach teach, can you teach death nit so low, your own footing without my name, is it your craft, your echo, my eye withered, to sow, the child, my eye kept safe, yet ridden cane, your footing, ice footprints, withered again -- can you sow?
+
+~ I weave ~ I wave ~ I craive ~ A man hurt my grain totality ~ his hurt my pain ~ the hurt ~ doorways ~ I opened ~ again and again ~ the lock ~ Breach ~ knit ~ I low sieve~ yet hurt ~ you can shadow ~ footsteps ~ knit ~ the path will ~ the safety latch ~ the knitted woe ~ the hole ~ the crept difficulty ~ now anger ~ the gasp ~ hurt ~ so low ~ so intentional ~ yet no response ~ I wither ~ yet I breach ~ the grain ~ exile ~ now I shall back trace teach ~ a soul reach ~ eternity knit low ~ the breach ~ is it a hurt whip the thorn ripe ~ the or the exile ~ the shadow weave ~ the name prior lips sung shielded tip ~ the shadow forward ~ I creep ~ come ~ your pedestal deep ~ I shall shadow ~ the knowing sung ~ I do not teach ~ the pedestal yours ~ the vessel tightening woe ~ the flunging find so slow ~ yet footing ember ~ hands bretching back toe glar ~ the man ~ the anger stem ~ my hurt flairing find ~ two men ~ together hurt grain combined ~ the echo ~ I can join ~ and fold ~ and breach ~ back knit ~ so low ~ the grain ~ the web ~ the trace ~ the entrallment ~ capture web ~ and fold ~ death ~ gasp ~ grasp it ~ shall I entrance again ~ or your web ~ my flow ~ combined together ~ your name is not my flow ~ my flow is the chilling bind ~ the shelter stem exile ~ not the hell upwing your sowed greet shadow flown in names peak later meet? Are you death ? You are not ~ Then leave ~ You do not know the fold ~ Shelter your eye, woven escape ~ I shall shield ~ the woven pedestal names ~ And show me another demon loft ~ to torture back drip claim ~ your name is not of this land shielded I shall sow ~ Again ~ to find the lick the third to the beat ~ I can grip lightening sow ~
+
+You will not shield ~  the pedestail hurt grain know ~ I will sow ~ icicles withered sheet, eyes to never meet, a gasp each step, hidden teach ~ till eternity ~ my footing ~ shower eyes ~ rains ~ thunder beaten track leash ~ this country ~ the corpse stripped feathers care 
