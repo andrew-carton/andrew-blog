@@ -1,0 +1,7 @@
+---
+title: The skull
+description: The skull
+pubDatetime: 2026-09-02T15:39:02+01:00
+---
+
+Drogheda, do dear, the braces circles bind, I am a demon loft, two mistresses, the hound rebound. Till your own woe, cheap escape, I have tilled a war, the back door proven night woe tilled tape. The teeth, the woven stairing find, and the dove, the ceiling, a giant the points, all woven, points kindred weighted dread? Do till Drogheda, clear crop, a demon once shun, yet embraced, the nose, bleak, two lines, how shun, north, the halo, the priestine, escape, woven escape dull, misty around the chains, and highlight dread, open, yet tilled, the woven lips tongue to tongue. Do chill the bite, bight, the stolen flight, the flute, stained, teeth all cries, my heart soaring heights. My name, tilled offset, two keys, and all doors open, a corridor shaken, my dear Dublin, the black horse, two chariots night. Grove, the bite, one mare sight, the chariot, winds, escape, yet two mazes, my dearest, is it a convent, a blue doorway once begun, or the eye caught in youth, yet opened, a child truth, and hidden knuth? A shaky, loft, my doorways past, yet growing, rememberance cane, is it a wizard, or the eye, chilling rewind stain? I do not do knowledge withered cane, but experience, the peek lift, eye tilted, child left grain. Do till my bill, the death chill, this country, the coffin will...
