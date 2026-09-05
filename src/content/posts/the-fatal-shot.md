@@ -1,0 +1,7 @@
+---
+title: The fatal shot
+description: The fatal shot
+pubDatetime: 2026-09-05T10:19:04+01:00
+---
+
+The gasp, the chill, the mid-strike, my breast, hid tell, to whisper, hint in surprise, to soften noose, the loose tell hoose - to capture love, the web so fine, one strand, the love so divine, that capture lept, my heart strung kept, the tail, left ending, the graize, I know to weep! Around the telling, the ghost hid night, the loom, strand coop, forget me all, the loom, can you choose? Am I lost, around the veil, the dance to tale, or a heart strung kept, the gasp won net, to tailor woe, to a single blow, the tear so won so strung, hid night, to gasp a midnight pain so fair, that fairing loft, my words so kept, that only I, hidden wear, could sheep, a doctor, woven grave, to hidden loom, my heart to pave, and around the frozen moon to till, the dust of sands, my loom heart till? Oh woven keep, the frozen dust, I will glance back lept, the path sands sieve, to one grain, lept, and hold a point, to all sold tear, to choose again, my mirror again, and love so clear? To never forget, to science ill kept, to the sun, shining around the loom, to never safe, but always balance crave, and the stem held point, my love to hoove?
