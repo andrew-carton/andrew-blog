@@ -1,5 +1,5 @@
 ---
-date: 2026-09-07
+title:  Om Ah Hum / Hung / Hring
 description: Om Ah Hum / Hung / Hring
 pubDatetime: 2026-09-0719T12:22:02+01:00
 ---
