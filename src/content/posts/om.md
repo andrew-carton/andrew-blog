@@ -1,0 +1,9 @@
+---
+date: 2026-09-07
+description: Om Ah Hum / Hung / Hring
+pubDatetime: 2026-09-0719T12:22:02+01:00
+---
+Om Ah Hum / Heng / Hring
+
+Meditate left, three treasures eyes closed sieve. Om - open spirit kind, Hum, to ground, and Ah - love treat left tend. The back left fume to integrate find, correct it right a corridor tide bind. Shadow ease, gifts would please, two eyes open burning pure shadow tease, and slight ears open nostrils flair, a point to travel, ears eyes mare. No research the back forth see, is it a shipman, in sight sort fee, or binding sort a demon the world fyme, see, be - three as one, as walk night chew? Tailor a chinese lost child see, and once to bind, the sort eye sum, tailor a donation, to a death child bum! Namaste, to a grandmaster chum, the laugh is a dark chew, on the travel with two.
+
