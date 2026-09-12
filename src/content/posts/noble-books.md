@@ -4,7 +4,7 @@ description: Noble books - scripture full
 pubDatetime: 2026-09-12
 ---
 
-﻿Noble books, these scriptures ease, how books lined company, prestine, and the eye l, the heart fold cry - are they all read please?
+﻿Noble books, these scriptures ease, how books lined company, prestine, and the eye I, the heart fold cry - are they all read please?
 
 Or a child to spit the company grain, one page torn and left, for to all volumns - can you lift the name, the woven tear tame, or discarded theft,
 
