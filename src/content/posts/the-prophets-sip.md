@@ -1,7 +1,7 @@
 ---
 title: The prophet's sip
 description: The prophet's sip
-pubDatetime: 2026-09-13T08:13:02+01:00
+pubDatetime: 2026-09-13T08:33:02+01:00
 ---
 
 The pluck, David, the fallen ember lightening faded crow, shielded wear, how a muslim, can seek reprise, the shielded eye surprise? How a sip my name, veiled woven eye glair, and one gift, to till a crop, lifetimes, the heart shattered company beat, how light can deceive, a mission, the ear swooped a pill so spun, a feast, to eager meetings rewind, the moon shine, will I part company thee, or the eye memories sailor wear, the coin hid stripped fair, the drivel, all forgotten to a beaten mistake, the appature collect company tide - you will fight for the tea, the pill company woven slide, not this lifetime, the backturn beat, my eye the towers wisdom never a feat, but names company appatures reset collect? 
