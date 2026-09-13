@@ -1,7 +1,7 @@
 ---
 title: Forget not
 description: Forget not
-pubDatetime: 2026-09-13T08:54:02+01:00
+pubDatetime: 2026-09-13T08:57:02+01:00
 ---
 
 Forget not, the light shielded, the robes, tilt tear, the fallen appature, is it a guide the wings, how feathers crop the moon tilt eye care, yet the liquid around the moon, robes, I wear too, the reaper, I know too soon, my name shifted, the moon hid surprise, the demon care tilted to the sun, gleaned, the woven guide light, spit collect, and appature tilted, woven guide, the flowing gown, I know too?
