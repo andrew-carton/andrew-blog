@@ -1,8 +1,9 @@
 ---
 title: A grain you will never win
 description: A grain you will never win
-pubDatetime: 2026-09-13T010:23:02+01:00
+pubDatetime: 2026-09-13T010:43:02+01:00
 ---
+
 
 Always studied, I, how simplicity tie, yet never burdened stripped of I, is it hindsight reflection, a tie?
 
