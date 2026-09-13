@@ -1,7 +1,7 @@
 ---
-title: King David - The breach knit
+title: King David ~ The breach knit
 date: 2026-09-13
-description: King David - The breach knit
+description: King David ~ The breach knit
 pubDatetime: 2026-09-13T18:57+01:00
 ---
 
