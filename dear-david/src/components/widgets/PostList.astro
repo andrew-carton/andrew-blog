@@ -14,7 +14,7 @@ const { posts } = Astro.props as PostListProps
           <div class={`post-item ${!themeConfig.date.dateOnRight ? 'date-left' : ''}`}>
             {!themeConfig.date.dateOnRight && (
               <p class="date font-features">
-                <FormattedDate index={i +1} />
+                <FormattedDate index={posts.length - i} />
               </p>
             )}
             <p class="title">{post.data.title}</p>
@@ -25,7 +25,7 @@ const { posts } = Astro.props as PostListProps
             )}
             {themeConfig.date.dateOnRight && (
               <p class="date font-features">
-                <FormattedDate index={i +1} />
+                <FormattedDate index={posts.length - i} />
               </p>
             )}
           </div>
