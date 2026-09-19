@@ -1,0 +1,5 @@
+---
+const index = Astro.props.index ?? 1;
+const padded = String(index).padStart(3, "0");
+---
+{padded}
