@@ -3,6 +3,7 @@ title: 'A folly'
 pubDate: '2025-09-20'
 ---
 
+Dear David,
 
 A sliding slip, how breathe, the e, slip motion escape divine, the pluck – how wine does savour, the sipping slipping time, that paused, the vine, the nettles prick, loom, I do hit too, the tongue slaughtered fame, and the hand, right too, how the honour, is it a slight, the shadow I do too fight?
 
