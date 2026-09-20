@@ -1,5 +1,5 @@
 ---
-title: 'The werewolf'
+title: 'The servant'
 pubDate: '2026-09-20T16:23:00+01:00'
 ---
 
