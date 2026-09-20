@@ -4,21 +4,31 @@ import type { PostListProps } from '@/types'
 import { themeConfig } from '@/config'
 
 const { posts } = Astro.props as PostListProps
-const groups = {}
+
+
+import type { CollectionEntry } from 'astro:content'
+
+type GroupItem = {
+  post: CollectionEntry<'posts'>
+  i: number
+}
+
+const groups: Record<string, GroupItem[]> = {}
 
 posts.forEach((post, i) => {
   const date = new Date(post.data.pubDate)
   const key = date.toISOString().split("T")[0]
 
   if (!groups[key]) groups[key] = []
+
   groups[key].push({ post, i })
 })
----
 
+---
 
 {Object.entries(groups).map(([day, group]) => (
   <section>
-    <h2 class="date-group"><br></h2>
+    <h2 class="date-group">{day}</h2>
 
     <ul>
       {
@@ -52,6 +62,7 @@ posts.forEach((post, i) => {
     </ul>
   </section>
 ))}
+
 
 
 <div class="placeholder"></div>
