@@ -1,6 +1,7 @@
 ---
 title: 'The werewolf'
 pubDate: '2026-09-20T12:53:00+01:00'
+Description: The first foot
 ---
 
 Dear David,
