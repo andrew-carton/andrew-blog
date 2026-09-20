@@ -26,7 +26,7 @@ How, one servant, in standing, does shield loft, yet crying soft, how tender, a 
 
 How spirit shields, how it folds, the crusade, the upbeat form, the sun, to the track, and always, how the seas, tides, woven track, is it one tear, the upcasting rare, the chill frost, the woven lair, forgiveness share?
 
-Or a game, the tear never landing fought, how to butcher a servant, the thick skin, shielded cane, the hounds, around he palms litten passage, fondled, the enfolding ensnare, I do find prize too?
+Or a game, the tear never landing fought, how to butcher a servant, the thick skin, shielded cane, the hounds, around the palms litten passage, fondled, the enfolding ensnare, I do find prize too?
 
 How tips, bare, stripped, caring, a sniff, the eye tilted, left, and how an entry, left, right, missing to find, the lick, in old age sort glove, emptied, the check sorted, know? A key light, yet sorted folded care, yet always a mission, to the chariot, a lick, how one angel, a day, makes a silent path, knowing no shame, to the permission sliding foe? How to etch one parable seizing flight? Or spirit, one parable, the tear, folded might, how a chariot, the hound following track, would sneeze, caring drift - what meaning, the folded point, beard, I do shelter weave, height – is it a herb, the talt shaken tear?
 
