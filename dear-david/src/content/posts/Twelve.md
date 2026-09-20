@@ -1,6 +1,6 @@
 ---
 title: 'A coin'
-pubDate: '2026-09-20T19:23:00+01:00'
+pubDate: '2026-09-20T19:43:00+01:00'
 Description: The first foot
 ---
 
