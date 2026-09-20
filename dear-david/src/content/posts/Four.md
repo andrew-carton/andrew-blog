@@ -3,7 +3,7 @@ title: 'The werewolf'
 pubDate: '2026-09-20T12:53:00+01:00'
 ---
 
-The werewolf
+Dear David,
 
 How one man, does the shadow, peek peer, woven feast, the lick, the I, beast coffin tame? Or around the lick, the eye safety, a soft touch, grain, or a mighty roar, to the seer knowing snore? How a sweep shadow, beast, the angel soar, slight, the bite, chance, the torn vessel taming hoof? To prepare yonder, the feast lick met, in boredom tweak, or tweak seer, meet, visit foe, the shadow, cloak, the belt, I do tidings guide tide slide, a laugh, hidden tame, shielded, grain?
 
