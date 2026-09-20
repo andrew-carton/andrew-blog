@@ -1,6 +1,6 @@
 ---
 title: 'A folly'
-pubDate: '2025-09-20'
+pubDate: '2026-09-20T11:53:00+01:00'
 Description: The first foot
 ---
 
