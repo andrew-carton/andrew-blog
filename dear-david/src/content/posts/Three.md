@@ -52,3 +52,5 @@ And the pearls cast chained forgotten past, how a dismissal, child, to the left,
 How a shadow, the seas, do light passages kit tunnel wear, around the fingers flying caring loom, or children arrogance a playground, the path soiled motion staining loft, how a mirror, a point shielded named soft kite, toiled around two rivers, soiled midnight care, do shielded cane, I share too?
 
 A soiling bright, yet the fold, is it solitude, I do share, two points, or three? Or fighting mission, the arrogance zoo, the soft touch, and the back, whirl, I shall left touch, centre, the tear, the flown letter, the silent tear, drop, I mists knew? Yet balanced flight too, cater wound touch remake take?
+
+~
