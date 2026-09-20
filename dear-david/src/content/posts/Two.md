@@ -1,6 +1,6 @@
 ---
 title: 'Love ~ a dove'
-pubDate: '2025-09-19'
+pubDate: '2025-09-19T16:23:00+01:00'
 ---
 
 

@@ -1,6 +1,6 @@
 ---
 title: 'A bridge'
-pubDate: '2025-09-18'
+pubDate: '2025-09-18T16:23:00+01:00'
 ---
 
 Dear David,
