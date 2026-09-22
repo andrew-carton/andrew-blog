@@ -1,6 +1,6 @@
 ---
-title: 'Stiff upper lip'
-pubDate: '2026-09-22T12:03:00+01:00'
+title: 'The Shadow'
+pubDate: '2026-09-22T13:03:00+01:00'
 Description: The third foot
 ---
 
@@ -9,47 +9,47 @@ Description: The third foot
 
 Dear David,
 
-The turn, slight, is it bite, a man, in the night? How praise wings, do tell, me more, the praise
-the silent chop, the wings night prise, arrogance the ear, tilted foe, how once morsel, depth,
-does a hound I tailor, he is mine, your pat, I can alter, the eyes woven lept, caring soft, night
-mare?
 
-The upper lip, stiff, how a treat, hid snow, the crow I know, too, a child, the little eye coined
-theft, and the bucket well, a sniff hound, keep pocket know, to a monkey sneak, the shop,
-twice slept grow, the sniff, I park, to the child lept wept, how hounds in arrogance, do bucket
-hands crop slop, olden feast, a trip, willing, shall I? Take one step, the feast lips, tear, a sniff,
-to find the bucket a child lit to my stair?
+Nothing known, but curiosity, I do sow, where the eye would light, can you give me the name, please, I delight. I can tend, where a hush mention, a name, I can say, I dareso too, I might lie, is it a man, the zoo, I shelter tie, the name, in comfort, his gift, and the parcel, is it too, I offer deny, a comfort grain, I wish the seed name, the tame, I shall give eternity, tow, sow me something, in company fame, a hush parcel, how I tame, the grain, the seed of light, how might, I only am a guide, not a mountain of tides, to sow
 
-Do find, the bucket, wiped of snot, a back eye glazed, yet all caught slopped. How a
-millionaire, would tidy sum, a beast caught fair, the eye withered, yet, what hound, do you
-feast, is it a stare?
+What morsel, a name, just not one name, I tide to sow, myself, a simple request, to just one guiding light. I never asked a meaning, to one request, of light, so rendered passages, time. The moon is not time to give, no guidance ripples a giant king, to alter, his mention, the name, I ring, the crop, I sow, is not a voice, to roar, not a voice in shelter eyes, I do sow, not a mountain or path, in a reaper guiding clearing, the mountain fast, to crying loft, the heaven a piece I could never master, a tear saved time, yet one coin, at a time, please, one guiding voice, one chime, one lit flame, in guidance long, or guides in eternity, to shelter, the tear, guiding wings, how lit passages, longing endure, all tried empty, and one tear, to the fear, that hands light a well, I can barely whisper, I can barely shelter the eye, the moon, to the wings, shadows, closed, to shadows ease, the whisper, to clear, yet I do held, can you fear?
 
-You know these tidy pieces, need a chop, yet a monkey two, how an alley crop, to a nut to
-crack, the angel maze, a little pry, the canal hid hound, and safety breath I do take, in
-hindsight lair?
+One guiding light, a simple, simple, request, when frozen across the wear, that just a reminder, each moment, each clarity, speak, just not frustration, not a reminder, to never barter, a price to pay, yet a reminder, as clear as day, and just a feast, one line, not an order, it is time, and then just a light to see me well, not forced just a hand, a living hell, I sell, to just an order, just a reminder, hand left theft, the teeth brushed willing, not hurt grain sort crutch. How, simple tolerance, the hurt grain weep, how the grain in pain, I cannot till, the control to seep, how the paths, hurt grain, the flirt, the whisper, the hurt, pain spread across lifetimes bed, to never lick, to never ask, but the hurt, the whispers fast, I tend, to paths, I hold the grain, a simple wash, of the aperture left, to find me good, to find me well, to find the hood, one hand, held to anchor sane, not in permission, just sanity, and a claim, I do know so well, I do, and yes, it is I do, to alter course, to just the hands, the pain, in nightmare’s purse. And yes, a simple hand in darkness turn, is it the moon, the light, the dark shadow, I curse, but now I tend, what feast, can the breathe I lend, the night whispers, yet the sun, I hold dear, too? How a simple path, to clean, the form, inside and out, to whispers, knockout day in and day out, the tolerance weave, that not knowing anything, how in safety, a hand touch long, and a lick in knowings song, to never care, to never weave a lair, yet safety first, how a path to flesh, can weave a tireless echoless lair, of truths, so fair, that one path night, and frozen, hurt, the flair, to never gift, the pain, the lit compass, the pockets empty, to just one update, is it a glare?
 
-A sniff, a seer, yet obvious held dear, a fallen ember, a child with tear, a house reaped
-solitude, and the hound, reaped sow, a flush the nose, is it a barter piece, the choice leapt
-near, a price tag under, yet under, the well, I do, hold, the bucket eyes parcel, how capture
-theft, is it still there crept?
+A touch, frost, to find, how a sniff, in eternity, and capture, just one name, to summon feast, to wings a beast, one flame, how can a pedestal be in name lackless find, to never cope, so never sowed timed hope, and a hand in comfort, where beasts burden crop, wings to chop, their beasts to snow, in grains of hope, and grains slaughtered, thrones of lifetimes spent, to a simple, simple request, to a hand touch fame, and the sink, how lame?
 
-How one man eyes the parcel cries, all gone, tears, and a sniff, the despair crept lies? A
-morsel memory, fallen slight, or one greedy man, all parcels night? How little feast, to sniff
-the wear, the bucket, vomit, or just a nosey kid, to a point raised stun, how an old feast,
-parcel, the tips, the feast palms cry?
+How lame, I do find guidance know, a shadow depth, and the grain a flame, the lifetime flirt, just a sink, and one instruction, the hand held, timeless echoes beat, how a wash, a being is feet for all, and guidance none, how wisdom, I do shiver, the tear, and knowledge, a hand held eternities beat, how a hand held feet, can swim a journey tall, and the spit, how I rinse, a coffin call, to a beaten track, the tear hand held, how simple, is it in trust, a beat, to wealth, on guiding flame, and all lifetimes severed, a soul, one request, just a simple guiding light, in wealth to feast, one more touch, a name, shall I shelter, to touch to sow, or paradise, just the sight, how a name lit, to eternity, one guidance lit, can hold a feast, can hold a crop, in instruction mow, can how an island to eternities beat.
 
-Is it a nettle coined, to back phrase grip, a little coin, and the child slip, laugh, the mind, nip,
-coy, the detail clever, yet game coised anigh?
+A fortun, how a reminder, how a simple text message, or a request person a finding light together sow, could grow in wealth, a simple request, to find a figure know, and just a silent echo, is it teeth all butchered, across the woven loom, the sight, to cry, and letter the reality, all beasts to sigh?
 
-A little sniff, in a time frame night, a king, exhales, the point, a loom, his points woven one
-point cry, that sniff a loom, a child parcel weave, how excitement levers, and all mine, the
-hounds, perhaps, I will leave?
+A guiding flame, how ugliness, a beast, in shelter name, all lit parcels to a request held diamond cane, yet altered course, the moon, I hide, the sun, too – I do shy – I am a beast hidden wondering flight.
 
-The lip will grow, an angel snot, how willing eyes, alter cart, yet cart one point eternity nip,
-how one point woven, a grip, knit lart?
+A whisper touch, two angels, how whispers sigh, and tilt a coin brush slide tide, how hushes, staining faults would tie, yet one brush thin, how a complex sin, I do tide, slide, the hush an angel flame to grin, hush to morsel a fashion hidden wide, how clever antecodes to slide and snide, or shelter even, a voice lost tail, how even hushes, do sweep, brushes, fail?
 
-What points are woven with grace to ear, an echo eternity, that I hold dear? Yet others,
-careless, the point I rise, the lip the point, I park to grow, and a little skip, the eye raised light,
-and the curse a shop, my humour poy?
+Shelter, how laughter knows, is it a child, isolation see, the hurt, all laughter, and ugliness be? I do not know, how ugly I am, shelter ease, how others butcher the coin fragrant passages, the hurt grain theft, to their wombs knit comfort, the loom touch, I need to permission fight, to comfort grain, my need, a back touch a frown hid fright?
 
-~
+Or passage greet.
+
+Whispers tailoring surprisings littings carings moving find.
+
+There is more moving here, that slidings passages I do hide, yet one brush I do swear hush tidings greetings, there are more to room then moving hands brushings sands tilt hide. Yet the flame, all at once, how I have butchered, the names all moving finds, the names to tides, the guardians reaped across the visions wear, and just one guiding tearing light to searing blind permissions lend.
+
+A touch each time, the hand left theft, a corridor of hope, how a whisper, I am, to fight, in a corridor sink to flush, a woven tapestry, just one simple request, one guiding flame, a text message, an order find, a command to be, or just a guiding flame, in trust, to slide, the hand in kind arrears, and just a check to find, the brush hid hush, how a fragrant morning can find arrears, how many lifetimes, how many angels slaughtered, for my coin of guidance, to the hell I breach, I breathe, I sigh, I twist nightly, feasts of demons licking coins, of feasts, butchering the pain, the hurt, the grain, the flame, I held so near, yet never permission, just a guiding flame, in beauty, why is it so ugly, one flame, the touch together, woven despair to completion, a path worth living, how can I fear?
+
+And damned to find, one flame lit compass kind, the name signed meaning, and my gift, mine, I do sign, across the wear, to never tear, permission lend, how one simple hand in sealing might, a flame, can I blow the wick held so fear, or is the fume, one more sight, can I weave spirit, I hold in echoes near, the whispers path, the loom, I pluck, one divine sight, is it the harp, I pluck David in your tolerant sight, or the lyre too, I shape to the room night save, to one gift, a name hid bravery cave, or altered missions, a child hid kind, another demand, how a gift together, is one signed blind?
+
+You will till a war, the guiding tire, how one lick total, can find, permission, a beat I hold clear near, how one lick eternity, can find a guide whisper, the hand held together near, and a gift, do I sell it on, for one lick angel, ability clear, or solder web, the left tear net, how all gifts moon, I transfer let, and see the paths focused meaning drift, is it one name, to sieve, in protection let, a name held in eternities pieces, cemented in stone to let, or one name found on a beaten track, to sever greet, and the flame held, to cement, one coin a name left, on the paper the whole wrack stash?
+
+Oh tidings, how one name too soon, would shadow ease, yet comfort, how the written word, does tease, a name, in hidden woe, the crow, I do not know, to shelter the eye, the withered, beaten flames, the price I pay, to just one name, the slaughter, house, to find, all wings chopped, the pedestals whipped across the haze, the tear frozen in one maze haze, to just a simple request, a hand held, in safety reach, where meaning simple and others simple requested shy, how safety, a name, I can purchase eternity.
+
+How, I do sigh, how one point a flame, can save a person twice shy, and reminder the cane, in a beaten track, the feast, together tolerance weave, how long to train the cane I truth, I try, to always comfort, the mirror depths, yet I motion reset, technology, can you not remind me, the app, to try?
+
+How so obvious, how the grain, the technology so beaten track, that I need a crystal orb, to track the motion, the ability fame, butchered across the pathways, slighted, to alter safety this lifetime pain? And now the ability flushed to wear, do you not find my guidance fair, a safe haven, the eye lit compass, yet the whole parcel, the lit orb, I can share too?
+
+How one morsel lifetimes a guiding hand flame, how a slip the ice, the frost the lairs, in guidance in greed, to just one damn greeting, to just one damn sip, of stain, across the teeth, to share, in a fume, to pair, that nothing motioned, it is not a commandment in light, or darkness in woven respect, but a frozen pain, a lair of trust broken to build in hope, in tolerance weave.
+
+Not history, not ever, not a name will I ever trust in pain, just wings, to chop, and the orb the hand I hold light to the palm in eternity, a flame, you will never ever give again to my name. It is not a name I hold clear, the a shadow the flight, and the guiding light, I hole to eternity, a brush, to till the soul sort near, how wings, a shadow, and hushes, is it the orb, David you want in my palm so let, how hindsight the tear so even the tilt showing capabilities lit compass tie?
+
+Or just one name, a child an ability to sigh, a crop a tune in feast, or permission lend, I an strike the motion wrists held night, a cup of midnight tended cast?
+
+Do light tend morsel the ugliness tame, how one line tend, the stop bright flame, and then a pause the mind held night, how a rewind motion, in prison I shall kite. To stun, the mind, the stop held ease, a vision motion whirling light, to permission, lend, a line the sands, I will light freeze, and alter direction, the stun the night, the shadows theft, my hands sort breeze, to anchor meaning a crow light theft, do you want another grain, or an angle again, to sort breeze left?
