@@ -7,7 +7,7 @@ Description: The fourth foot
 
 Dear David,
 
-Sorted, know, how a gift in tolerance, does take time in patience grow, that on the wings in viewing flight, I have tampered a passage, your gaze, in readings flight a grain, to tilt the crop, the rays, in doubt a flame, or tilling wide, how others slide, the open air, is it just the nose, a sniff, the air, a tide?
+Sortings, know, how a gift in tolerance, does take time in patience grow, that on the wings in viewing flight, I have tampered a passage, your gaze, in readings flight. A grain, to tilt the crop, the rays, in doubt, a flame, or tilling wide, how others slide, the open air, is it just the nose, a sniff, the air, a tide? How God without guidance my worth to see, is it my gift, just empty words, with no flame of guidance or a life of direction, in a town abandoned with tone, my gift hone light, and empty dwelling I in sight, the angel is it flown tides wide, the skies to grow, and my patience, the gift of spirit, is it tainted in this dwelling, with just the airs of snobbery, to hands in chains, I tilt to grinding passage show?
 
 ~ 
 
@@ -15,7 +15,7 @@ My hands down, do you see, the sun arises, the light, the crying soon, the sun e
 
 Who are you? The sky clearned and stripped of clouds hid fair, a voice hid might, a throne blinding sight, the sun in arrears, where all stripped gleaned, that a child hid focus, could never see, could never tilt, the eyes, hid foe, and always curiosity, what is the fold, that I can floor?
 
-Is it my name, in quite binding form, the hands loft priase, the winds, a maze, the fingers eager, sworn to duty, is it a maze, or a lair, a labyrinth of touches, in warmth to grow, that I could never bend a finger in judgement sow?
+Is it my name, in quite binding form, the hands loft praise, the winds, a maze, the fingers eager, sworn to duty, is it a maze, or a lair, a labyrinth of touches, in warmth to grow, that I could never bend a finger in judgement sow?
 
 Yet never ease, what voice, a child writes with ease, is it a name that you know well, a name in loft, a name the winds, that cry so soft, with tears from heaven, and barely a mission, that I could tend, in any location but a bow, the feet sworn in tears to grow, yet never eager, a seat in parting winds, a flame in guidance, is it I, to show?
 
@@ -51,7 +51,7 @@ How tides do filter the breeze worth beat, is it a quicker, the shelter frozen, 
 
 How a child would tilt permission wide, to sell his soul, to a demon, coined price loft in care, is it an angel, in wiltered bare, or just another his soul all permissions two islands, the chains his soul to a different lair?
 
-How temperance time, does lie it's cast,' and what is my name, I cannot know? How shielded rays, of knowings beat, how the news is just a graize, and passing fantasy fleet? So, is there a child in channeled fame, others names, in suspicion tame, or just a hound released for fun, and showing caring then where is my hound with a lease held son?
+How temperance time, does lie it's cast,an d what is my name, I cannot know? How shielded rays, of knowings beat, how the news is just a graze, and passing fantasy fleet? So, is there a child in channeled fame, others names, in suspicion tame, or just a hound released for fun, and showing caring then where is my hound with a lease held son?
 
 I do think others fondle care, where the beasts at hands, are they lent in forgiveness, or in motions hurt a grain, a wiltered eye, to fun in tempting light, to treat in same, motion grains held fortune tame?
 
@@ -64,7 +64,7 @@ Give me time, to motion loft, a message timing is often hid soft, what do you wa
 Sniff the beast, in kind remark, a child flying lease, is often spark, that knowing one thing, knows it all, and knowing wisdom, then truth flight tall.
 
 Often praises now no name, I offer forgiveness, is it a channel an angel flame, yet mercy has no forgiveness light, where others chime, their sorrows fight, and often meaning, to hindsight, how a child can switch to witchcraft grain, and fly the sorrows morning truth, a table yearned, for a child another to hoot?
-hen w
+
 What channel eases the softened blow, a dagger by a woman, or a man with know, or channels loft, the death cane blink, how treatment equal, then all depths blink?
 
 What have thee on a reaper known, anger willing, my treatment meetings forgiven beaten track sort tone, or fragrance alter, a child hid night, to offer meanings, then a flight? Or signal cane his own forth tame, guidance never, then beaten death, to the past worth blame?
