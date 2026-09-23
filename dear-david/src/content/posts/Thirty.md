@@ -1,11 +1,15 @@
 ---
-title: 'My hands down - a voice beacon hurt in a gift to tame'
+title: 'Angel loft - A voice beacon hurt in a gift to tame'
 pubDate: '2026-09-23T15:14:00+01:00'
 Description: The fourth foot
 ---
 
 
 Dear David,
+
+Sorted, know, how a gift in tolerance, does take time in patience grow, that on the wings in viewing flight, I have tampered a passage, your gaze, in readings flight a grain, to tilt the crop, the rays, in doubt a flame, or tilling wide, how others slide, the open air, is it just the nose, a sniff, the air, a tide?
+
+~ 
 
 My hands down, do you see, the sun arises, the light, the crying soon, the sun eternity, and I, the shapeless hands, in thoughless capture rare, is it my name in loft, my name a throne, in riddance, the eye to never binding form, the eye in loft, the eye hid caring hands, a name, to disown, in caring laughter, yet never suffering flees, the hands worn fend, and I, who am I, yet a child to see, a guiding passage, and the sun, shining in forewith guidance be?
 
