@@ -3,6 +3,9 @@ title: 'To move'
 pubDate: '2026-09-25T08:01:00+01:00'
 Description: The fifth foot
 ---
+
+Dear David,
+
 To move, or hallow, often eases mistakes, where movement hallows or hallowing moves, then all moved forward, and backward tended grip, how one movement in swift decay, would find the slip, the echo of eternity, how silence renders, it eases, one mistake, that everything partake a folly meet, then does folly restart, or a quickened state? 
 
 I state, all lost, and one movement slate, I cannot move, yet what state last I cannot see, and the folly, is it all I, in one girl pedestal greet, the lifted eyes, the room paused to take, all flashing findings, education guide, a naked child, with advice to guide, two flames eager, joined with tides, and often a freeze, the freedom knees, one movement forward, is it a walk out, a man ties even, one sip taken, the frown to tend, how two sips, the drips, an old man greets, or a gasp, a bold move, a Queen I make?
@@ -20,3 +23,5 @@ Do you want a cane, three points joined, yet five what is taken, is joined in bl
 How one hood strike, a priest lift find, a pocket penny, and the heel, do I tend, the peek peer rend, the look back heel, in guidance knell, my name please, across the light, one touch, is eternity bright? How nothing given in notes to flame, a little morsel, is just freedom, three steps, hood, and which step good? IT doesn’t matter, a child reap, and a church a centre gaze in find, delays the mission, and a smile, the spirit works, to one finger wrap. I can do this gig, just a little tap, as child reap spirit frowns anger know, spirit guides, and hope – is it a penny frosted on a path to staff, the dirty pick up, the child a sniff, and permission, back glance daft? I always see, choice to flow, the gifts left on the table light, and the penny steaming, is it a fight? Or a pardon welcome, three licked frown, a pocket later, to spirit, left ground?
 
 How wombs knit low, the eye lit care, the floor one measure, first, then eyes slackened fair. And an old wive grip, her eye light sieve, you found the child then, I do think, he sinned, light forbid, but I folded a morsel in his hand, just to see him on his way, and gifts a little mercy bright, one child in fright, my hands sworn down, the bag held night, and always a lick, to find a coin in passing need, to one child summed, and torn fleet need, and often a purse, another lick treat, you will see my shadow on the eye lit dark, or just prying soft, I do cackle, eternity, I abandon one lick, a choice, I savour fought.
+
+~
