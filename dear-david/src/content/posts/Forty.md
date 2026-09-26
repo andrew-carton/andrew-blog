@@ -1,7 +1,7 @@
 ---
 title: 'The guiding bridge - Permission lend'
-pubDate: '2026-09-23T15:14:00+01:00'
-Description: The fourth foot
+pubDate: '2026-09-23'
+Description: The seventh foot
 ---
 
 
