@@ -1,6 +1,6 @@
 ---
 title: 'Ireland vs Israel'
-pubDate: '2026-09-26'
+pubDate: '2026-09-26T16:02:00+01:00'
 Description: The seventh foot
 ---
 
