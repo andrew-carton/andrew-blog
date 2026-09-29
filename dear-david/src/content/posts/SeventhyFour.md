@@ -1,6 +1,6 @@
 ---
 title: 'Shielded soft'
-pubDate: '2026-09-28T02:39:00+01:00'
+pubDate: '2026-09-29T02:39:00+01:00'
 ---
 
 Shielded soft, the visions I too, the vision Mother Mary, the prick the needle sown to thread, the visions worn crop my eye the left to lend. 
