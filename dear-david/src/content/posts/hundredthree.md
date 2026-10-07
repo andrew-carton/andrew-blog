@@ -1,6 +1,6 @@
 ---
 title: 'Zapherial - A tone hid clay'
-pubDate: '2026-10-06T11:35:00+01:00'
+pubDate: '2026-10-06T12:00:00+01:00'
 ---
 
 A breach hid time, forward, rewind, timing fine, yet often circle hidden, is it a halo in time? Can you find confession in a group, a tone upscale, and child hid flute? That forward motion, the time exhale, all teachers slammed, and a christian brother, a monastery backtreat classroom fail? A truth obey, the child hid hone, the eye lit mercy, and pathways lit too soon a church alter alone, and hidden chime, a child breathe ease, how exhale does lit the burden tease? Find a flute, in bidden clay, my voice, hidden alter, and one anchor truth obey, and mercy findings the tone uphill, is it confession, or forgiveness, an uphill breath, in a sharpened till a bill? An anger truth, to flow time tame, is it a gift, or one gift tail? To know my anchor alone truth sum, alone, I drive a hard battle, all wings, whispers full, and an exhale alone tomb crying sail? To fly a cry, in bravery tail, yet anchor, an angel, it is a tombstone fail, that not a shiver to fly a tone, just cement the altar, and all silence a crone? A bravery till, to flight a maze, all paths swerved, and a child hid sails, and flight to passage, no gift honed night, is it another flute, to a passing friend to kite?
