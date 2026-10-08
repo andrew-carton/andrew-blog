@@ -1,6 +1,6 @@
 ---
 title: 'Guidance - the finger of judgement'
-pubDate: '2026-10-07T12:00:00+01:00'
+pubDate: '2026-10-08T08:00:00+01:00'
 ---
 
 The key of judgement
