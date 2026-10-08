@@ -67,7 +67,7 @@ A fight in vulnerability, a soul rendered theft, to this day, all arrogance know
 
 
 
-You know nothing to seal arrogrance a drought so young, and the name held spinning, I have given in instructions obey.
+You know nothing to seal arrogance a drought so young, and the name held spinning, I have given in instructions obey.
 
 
 
