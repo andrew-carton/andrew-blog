@@ -1,5 +1,5 @@
 ---
-title: 'Beetlejuice - you know my name, don't wear it out'
+title: 'Beetlejuice - you know my name, dont wear it out'
 pubDate: '2026-10-09T06:27:00+01:00'
 ---
 
