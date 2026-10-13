@@ -1,6 +1,6 @@
 ---
 title: 'Armed intruder'
-pubDate: '2026-10-13T09:27:00+01:00'
+pubDate: '2026-10-13T10:16:00+01:00'
 ---
 
 Dear David,
